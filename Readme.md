@@ -1,1 +1,1 @@
-bacalah saya
+bacalah saya .
